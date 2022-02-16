@@ -1,3 +1,3 @@
-# Bölüm Sonu Çalımamaız
+# Bölüm Sonu Çalımamız
 
 >Deneme
